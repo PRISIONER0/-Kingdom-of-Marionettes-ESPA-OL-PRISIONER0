@@ -12,6 +12,18 @@ DESCARGA AQUI LA TRADUCCION DE  Kingdom of Marionettes
 
 Traducción al español
 
+☕ Ko-fi
+
+https://ko-fi.com/prisioner0)](https://ko-fi.com/prisioner0)
+
+🟡 USDT (BEP20)
+
+Red: BNB Smart Chain (BEP20)
+
+0x584da47fe19435abcd31bb9314d49f4804093c5c
+
+⚠️ Importante: enviar únicamente USDT por la red BEP20 (BNB Smart Chain).
+
 PRISIONER0_
 
 

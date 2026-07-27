@@ -15,7 +15,7 @@ Arriba a la derecha en la parte de comunicados
 
 Link para android:
 
-https://pixeldrain.com/u/R1gGd1r6
+https://pixeldrain.com/u/5zZcbadf
 
 ☕ Ko-fi
 

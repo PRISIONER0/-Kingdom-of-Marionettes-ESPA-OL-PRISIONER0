@@ -10,7 +10,12 @@ DESCARGA AQUI LA TRADUCCION DE  Kingdom of Marionettes
 
 ══════════════════════════════
 
-Traducción al español
+Traducción al español 
+Arriba a la derecha en la parte de comunicados
+
+Link para android:
+
+https://pixeldrain.com/u/R1gGd1r6
 
 ☕ Ko-fi
 
